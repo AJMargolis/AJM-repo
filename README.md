@@ -1,1 +1,1 @@
-# AJM-repo
+# Alexander Margolis
